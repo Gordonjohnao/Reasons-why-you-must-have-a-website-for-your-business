@@ -50,4 +50,4 @@ Final Takeaway
 The rate of Being Left in the back of is lots greater Than Having a internet site
 Having a professionally designed, brand-differentiating website is vital to growing sales, boosting the bottom line, and developing your business. It offers you a threat to be in the front of the proper target audience with your logo’s story. Moreover, having a fundamental internet site costs some pennies and might offer large returns over the long run.
 <h1>Need a website Now?</h1>
-[@Querysoftke Techniologies Limited]("https://querysoftke.com/") Offers the best website design and development Solutions that best fit your business plans
+< a href="https://querysoftke.com/">Querysoftke Techniologies Limited</a> Offers the best website design and development Solutions that best fit your business plans
